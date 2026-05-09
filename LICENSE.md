@@ -1,4 +1,4 @@
-
+Experience fish it like never before with best fish it Script, the #1 Script. Includes anti-ban and auto-farm for unbeatable performance.
 
 
 
